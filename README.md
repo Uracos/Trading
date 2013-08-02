@@ -1,4 +1,5 @@
-Repo
+Trading
 ====
 
-Repo is Raper for RIPER traper
+Lider of hits http://gosbos.os
+
